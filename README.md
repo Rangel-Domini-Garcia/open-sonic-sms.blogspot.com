@@ -1,0 +1,2 @@
+# open-sonic-sms.blogspot.com
+Sonic the Hedgehog (ソニック・ザ・ヘッジホッグ Sonikku za Hejjihoggu?) é um jogo de plataforma da série homônima que foi lançado, em 25 de outubro de 1991, para o Master System e, em 28 de dezembro de 1991, para o Game Gear. Desenvolvido pela Ancient, é a distinta versão 8-bit do popular jogo 16-bit. Além de seu lançamento original, em cartucho, o jogo foi mais tarde incluído na memória de algumas versões do Master System na Europa e no Brasil. Foi o último jogo lançado para Master System na América do Norte.
